@@ -19,7 +19,6 @@ Most of the peer support I recieve is based around [Intentional peer support](ht
 
 I find it helpful how ***Mutality*** support the exploration of ***worldviews*** by allowing empathic connect to the common emotion and realities of people I engage with. To empathically connet with someone makes I feel less alone and include into a commmunity. It reduces the feeling of beeing othered and safe enough to explore others ***Worldviews*** as well express mine. It gives space for geninue ***connection*** to develop which goes beyond difference in ***worldviews***. It allows for a diverse community eco-system to develope. 
 
-***Connection***
-
+Being able to develope  geninue ***Connection*** is truely benefical to my mental health and wellbeing because having ***Connection*** based in ***mutuality*** allows for me to feel respected and get better understanding everyone. It allows for people to connect in more meaningful ways. The ***connection*** I get from peersupport is reassuring, surportive, and  is ***moving towards*** embetterment through building ***Connection*** with a more various spectrum of ***worldview*** to at time challenge my **worldview** in a support, caring, respectful and supportive manner. The ***connection*** I have through my INternational peersupport relationships can be challenging but give great for growth and ***moving toward***.
 
 ## What further peersupport that I need. 
