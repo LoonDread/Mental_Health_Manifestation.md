@@ -15,9 +15,11 @@
 - Other people with similar interests 
 
 ## What I find Helpful about Intentional Peer support and its core values 
-Most of the peer support I recieve is based around [Intentional peer support](https://intentionalpeersupport.org/) and is what I have been trained in. I find this aproach helpful because it allows for conflicting **worldviews/Perspectives** to be respectfully expressed. This is important to me beacause it allow me to hear views that is different from mine and allow me to reassess or change my worldveiw if neccessary. One the thing that Intentional peer support made me reflect on is the diagnosis/psychatric approach that I learned form Studying psychology which was trigger by discusing alternative to it like Holistic/community. In this reflection I realised there more than one way to healing and diverse approach to mental health healing is needed. 
+Most of the peer support I recieve is based around [Intentional peer support](https://intentionalpeersupport.org/) and is what I have been trained in. I find this aproach helpful because it allows for conflicting ***worldviews/Perspectives***  to be respectfully expressed. This is important to me beacause it allow me to hear views that is different from mine and allow me to reassess or change my worldveiw if neccessary. One the thing that Intentional peer support made me reflect on is the diagnosis/psychatric approach that I learned form Studying psychology which was trigger by discusing alternative to it like Holistic/community. In this reflection I realised there more than one way to healing and diverse approach to mental health healing is needed. 
 
-I find it helpful how **Mutality** support the exploration of **worldviews** by allowing empathic connect to the common emotion and realities of people I engage with. To empathically connet with someone makes I feel less alone and include into a commmunity. It reduces the feeling of beeing othered and safe enough to explore others **Worldviews** as well express mine. It gives space for geninue **connection** to develop which goes beyond difference in **worldviews**. It allows for a diverse community eco-system to develope. 
+I find it helpful how ***Mutality*** support the exploration of ***worldviews*** by allowing empathic connect to the common emotion and realities of people I engage with. To empathically connet with someone makes I feel less alone and include into a commmunity. It reduces the feeling of beeing othered and safe enough to explore others ***Worldviews*** as well express mine. It gives space for geninue ***connection*** to develop which goes beyond difference in ***worldviews***. It allows for a diverse community eco-system to develope. 
+
+***Connection***
 
 
 ## What further peersupport that I need. 
