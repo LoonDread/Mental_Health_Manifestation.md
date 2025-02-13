@@ -32,7 +32,7 @@ Being able to develope  geninue ***Connection*** is truely benefical to my menta
 
 ## What I finding helpful supportive friends and important qualities
 
-**Important qualities:** seeing me for me, 
+**Important qualities:** seeing me for me, expands my thinking, 
 </details>
 
 - Members of my communities
