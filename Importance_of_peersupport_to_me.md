@@ -34,6 +34,7 @@ Being able to develope  geninue ***Connection*** is truely benefical to my menta
 
 **Important qualities:** seeing me for me, 
 </details>
+
 - Members of my communities
 - Other people with similar interests 
 
