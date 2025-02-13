@@ -26,7 +26,14 @@ Being able to develope  geninue ***Connection*** is truely benefical to my menta
 **CORE PRINCIPLES OF INTENTIONAL PEER:** ***worldviews, connection, mutality, and moving towards***
 </details>
 
-- Supportive friend
+<details>
+<summary>Supportive friends</summary> 
+<br>
+
+## What I finding helpful supportive friends and important qualities
+
+**Important qualities:** seeing me for me, 
+</details>
 - Members of my communities
 - Other people with similar interests 
 
