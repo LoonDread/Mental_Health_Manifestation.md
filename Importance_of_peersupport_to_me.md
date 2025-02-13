@@ -32,10 +32,20 @@ Being able to develope  geninue ***Connection*** is truely benefical to my menta
 
 ## What I finding helpful supportive friends and important qualities
 
-**Important qualities:** seeing me for me, expands my thinking, 
+
+
+**Important qualities:** ***seeing me for me, expands my thinking, encourages my growth, and we value each other.***
 </details>
 
-- Members of my communities
+<details>
+<summary>Members of my communities</summary>
+<br> 
+
+## What I find helpful in welcoming community and its core values
+
+**core values:** ***accepting, encourage Identity development, 
+</details>
+
 - Other people with similar interests 
 
 
