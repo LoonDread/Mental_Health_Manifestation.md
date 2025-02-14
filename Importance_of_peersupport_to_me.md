@@ -32,23 +32,30 @@ Being able to develope  geninue ***Connection*** is truely benefical to my menta
 
 ## What I finding helpful supportive friends and important qualities
 
+I find that if a supportive friend ***seeing me for me*** it can a more guiune connection that allow for my authentic self be expressed. This put less stress on my mind and body when engaging with supportive friends. Enable me be freer to discuss more challenge topics to ***expand my thinking*** leading changes wellbing behaviours and my worldview. 
 
 
 **Important qualities:** ***seeing me for me, expands my thinking, encourages my growth, and we value each other.***
-</details>
+</details>gu
 
 <details>
 <summary>Members of my communities</summary>
 <br> 
 
-## What I find helpful in welcoming community and its core values
+## What I find helpful in welcoming community and its core aspects.
 
-**core values:** ***accepting, encourage Identity development, 
+**core aspects:** ***accepting, encourage Identity development, enaged in activism and Celibatory.***
 </details>
 
-- Other people with similar interests 
+<detials>
+<summary>Other people with similar interests</summary>
+<br>
 
+## What I find helpful in uplifting others with simalar interests and thier core charastics. 
 
+**core Characteristic:** ***Encourages development, Celebrates achievements, inspirational and thoughtful feedback.***
+
+</detials>
 
 
 
