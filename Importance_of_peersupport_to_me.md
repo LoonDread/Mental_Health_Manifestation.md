@@ -48,6 +48,7 @@ I find that if a supportive friend ***seeing me for me*** it can a more guiune c
 
 <detials>
 <summary>Other people with similar interests</summary>
+  
 <br>
 
 ## What I find helpful in uplifting others with simalar interests and thier core charastics. 
