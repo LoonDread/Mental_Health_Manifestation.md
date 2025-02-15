@@ -32,11 +32,10 @@ Being able to develope  geninue ***Connection*** is truely benefical to my menta
 
 ## What I finding helpful supportive friends and important qualities
 
-I find that if a supportive friend ***seeing me for me*** it can a more guiune connection that allow for my authentic self be expressed. This put less stress on my mind and body when engaging with supportive friends. Enable me be freer to discuss more challenge topics to ***expand my thinking*** leading changes wellbing behaviours and my worldview. 
-
+I find that if a supportive friend ***seeing me for me*** it can a more guiune connection that allow for my authentic self be expressed. This put less stress on my mind and body when engaging with supportive friends. Enable me be freer to discuss more challenge topics to ***expand my thinking*** leading changes wellbeing behaviours and my worldview, which ***encourages my growth***. Yet a supportive relationships has mutuality built into it, Where ***we value each other***. Enable us to support each other growth and development by lifting us together at the same time without the pushing one down.
 
 **Important qualities:** ***seeing me for me, expands my thinking, encourages my growth, and we value each other.***
-</details>gu
+</details>
 
 <details>
 <summary>Members of my communities</summary>
