@@ -43,7 +43,7 @@ I find that if a supportive friend ***seeing me for me*** it can a more guiune c
 
 ## What I find helpful in welcoming community and its core aspects.
 
-**core aspects:** ***accepting, encourage Identity development, enaged in activism and Celibatory.***
+**core aspects:** ***accepting, encourage Identity development, enaged in activism and Celebratory.***
 </details>
 
 <details>
