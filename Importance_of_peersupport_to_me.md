@@ -46,7 +46,7 @@ I find that if a supportive friend ***seeing me for me*** it can a more guiune c
 **core aspects:** ***accepting, encourage Identity development, enaged in activism and Celibatory.***
 </details>
 
-<detials>
+<details>
 <summary>Other people with similar interests</summary>
   
 <br>
@@ -55,7 +55,7 @@ I find that if a supportive friend ***seeing me for me*** it can a more guiune c
 
 **core Characteristic:** ***Encourages development, Celebrates achievements, inspirational and thoughtful feedback.***
 
-</detials>
+</details>
 
 
 
