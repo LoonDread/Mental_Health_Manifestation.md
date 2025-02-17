@@ -36,7 +36,9 @@ I find that if a supportive friend ***seeing me for me*** it can a more guiune c
 
 I greatly appreciate the effort my supportive friends and I put into lifting each other up and not leaving friends behind as each of us experience growth. My Supportive friends that ***encourages my growth*** are highly value to me. Them also value me and what I have offer adds to my self esteem. For us to ***value each other*** adds mutuality and shared growth. For friends that ***encourages my growth*** they need to ***expand my thinking*** and get me to think in new ways. This ***encourages my growth*** by giving me knew perspective and idea to consider. For me intergrate in to my worldview and understanding. Allowing changes in my mental health and wellbeing. Due to the mutuality of the engagement with my supportive friends we all get an oppurtinity to ***expand our thinking*** and to experience growth. 
 
-For a supportive friend to be able to ***expand my thinking*** they need to respectfully and confidently express thier worldview to me. They must expect that I would not always aggree with them and automatically take on board what they say. That I would atleast politely listen and I expect the same from them. 
+For a supportive friend to be able to ***expand my thinking*** they need to respectfully and confidently express thier worldview to me. They must expect that I would not always aggree with them or automatically take on board what they say. That I would atleast politely listen and I expect the same from them. Where we all allow time to proccess information and perspectives. To also seek out other prepectives and world views. For us not to be shaped by one connection but many connection. Enabling a well rounded human to develop. I find this Important because I like to see diverse range of worldview and compare it to mine. Helping to discover weakness in my worldview. 
+
+
 
 
 
