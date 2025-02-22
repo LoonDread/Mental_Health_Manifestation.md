@@ -47,7 +47,9 @@ I find that ***we valuing each other*** encourages the development of trust, col
 <summary>Members of my communities</summary>
 <br> 
 
-## What I find helpful in welcoming community and its core aspects.
+## What I find helpful in welcoming community and its core aspects
+
+Community peer support needs to be ***accepting*** of my Identities to ***encourage identity development***. It also needs to support the wider acceptance through being ***being engaged in actitism*** and ***celebarting*** my identiies. Different communities support different Identities and sometime multiply ones at the same time. ***Accepting*** my identities makes me feel like I do not need to hide behind a front and be honest about who I am without being discriminating against. Alllowing me to be freer in my expression and  more relaxed in socail suituations. Enabling me to safely and honest explore my identities to ***encourage identity development***. 
 
 **core aspects:** ***accepting, encourage Identity development, enaged in activism and Celebratory.***
 </details>
