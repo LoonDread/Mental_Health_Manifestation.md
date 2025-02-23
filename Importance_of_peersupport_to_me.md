@@ -53,6 +53,8 @@ Community peer support needs to be ***accepting*** of my Identities to ***encour
 
 My communitties ***encouraging identity development*** is crucial to me better understanding myself and to process what the Identities I have mean to me. It helps me express and define myself better. To grow Into the skin of my identities and let it morph into the beauty of who I am truly. Removing the restrictive chains of expectation in discrimination. Enabling me to openly ***celebrate*** the realities of my identities and learn Who I truely. In ***accepting*** and understanding company which ***engages in activism*** when they feel our identities are getting unfairly attacked. Yet still leaving room for ***celebratory*** nature of the communities I enjoy. 
 
+For my communities being actively ***engaged in activism*** is highly valued by me because it means that something is being done about the discrimination and hatred I experience. That someone is sticking up for my rights when I do not have the capicity to does so. Creating a chances for change. Leading to the pontential to create a better engagement with the wider community. Enable me to be less isolated and discriminated against. Improving myself esteem due to fact I am recieving less negative statement and voilence towards myself and others. As welling seeing people supporting my identities and making sure that my identities are welcome in the wider community. At times activism is celebrating my identities. 
+
 
 
 **core aspects:** ***accepting, encourage Identity development, enaged in activism and Celebratory.***
