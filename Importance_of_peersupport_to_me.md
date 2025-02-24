@@ -55,8 +55,6 @@ My communitties ***encouraging identity development*** is crucial to me better u
 
 For my communities being actively ***engaged in activism*** is highly valued by me because it means that something is being done about the discrimination and hatred I experience. That someone is sticking up for my rights when I do not have the capicity to does so. Creating a chances for change. Leading to the pontential to create a better engagement with the wider community. Enable me to be less isolated and discriminated against. Improving myself esteem due to fact I am recieving less negative statement and voilence towards myself and others. As welling seeing people supporting my identities and making sure that my identities are welcome in the wider community. At times activism is celebrating my identities. 
 
-
-
 **core aspects:** ***accepting, encourage Identity development, enaged in activism and Celebratory.***
 </details>
 
@@ -66,6 +64,8 @@ For my communities being actively ***engaged in activism*** is highly valued by 
 <br>
 
 ## What I find helpful in uplifting others with simalar interests and thier core charastics. 
+
+People with similar interest in my mind need to ***encourage development*** by offering ***thoughtful feedback*** to be effective at doing interested based peersupport. Then also need to ***celebrate achievements*** to provide postive reinforcement. Further more, similar interest communities need to be a great source ***inspiration*** to keep me motivate and developing my ideas. 
 
 **core Characteristic:** ***Encourages development, Celebrates achievements, inspirational and thoughtful feedback.***
 
