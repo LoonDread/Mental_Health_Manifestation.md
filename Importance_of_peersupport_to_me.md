@@ -65,7 +65,11 @@ For my communities being actively ***engaged in activism*** is highly valued by 
 
 ## What I find helpful in uplifting others with simalar interests and thier core charastics. 
 
-People with similar interest in my mind need to ***encourage development*** by offering ***thoughtful feedback*** to be effective at doing interested based peersupport. Then also need to ***celebrate achievements*** to provide postive reinforcement. Further more, similar interest communities need to be a great source ***inspiration*** to keep me motivate and developing my ideas. 
+People with similar interest in my mind need to ***encourage development*** by offering ***thoughtful feedback*** to be effective at doing interested based peersupport. Then also need to ***celebrate achievements*** to provide postive reinforcement and be a great source ***inspiration*** to keep me motivate and keep me developing my ideas. ***Encouraging development*** is benefical to me because it helps me not become stagnant and to continue support me move forward with my hobbies and interest. The nature of the moving forward goes beyond my hobbies and interest by bleeding into support my mental health. This done when ***encouraging developmemnt*** the community support me to consider the need to look after my wellbeing because if my wellbeing is not great less time I can put into my hobbies and interest. Meaning my creative output is dimishes with poor wellbeing. 
+
+
+
+Interest base peer support can also support my mental health  by 
 
 **core Characteristic:** ***Encourages development, Celebrates achievements, inspirational and thoughtful feedback.***
 
